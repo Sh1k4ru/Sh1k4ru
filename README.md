@@ -1,5 +1,5 @@
 ### Hey there! 😊
-### I'm Shikaru, 17y and I'm half american and half brazilian, but live in Portugal 🙃
+### I'm Shikaru, 18y and I'm half american and half brazilian, but live in Portugal 🙃
 
 <div align="left">
   <a href="https://github.com/Sh1k4ru">
